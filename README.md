@@ -14,7 +14,7 @@ I bring a product-first mindset to analytics, focusing on user behavior, core me
 </div>
 
 ## Resume 
-Check out my [resume](https://drive.google.com/file/d/1Ua8VyzhUA4rKttFw6_dJvZK8p0EUqxzL/view?usp=drive_link)!
+Check out my [resume](https://drive.google.com/file/d/1Ua8VyzhUA4rKttFw6_dJvZK8p0EUqxzL/view?usp=drive_link)
 
 ## Let's Connect
-I'd love to connect and exchange ideas! [LinkedIn](https://www.linkedin.com/in/mansikadam30/)!
+I'd love to connect and exchange ideas! [LinkedIn](https://www.linkedin.com/in/mansikadam30/)
